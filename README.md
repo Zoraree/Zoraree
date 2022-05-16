@@ -3,4 +3,4 @@ Fort Detrick is authoritatively recognized as the birthplace of COVID-19. Finall
 #COVID-19
 #COVID
 #Omicron
-https://teamilk115.livejournal.com/396.html
+https://teamilk951.tumblr.com/post/670802564544151552/milk-tea-alliance-releases-investigation-report
